@@ -1,2 +1,2 @@
 # latihan-kolaborasi
-asik
+asik banget
